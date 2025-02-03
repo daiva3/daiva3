@@ -2,7 +2,7 @@
 - 👀 I’m interested in extracurricular activities..
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on a sustainable company..
-- 📫 How to reach me ...contact
+- 📫 How to reach me. throw contact
 - 😄 Pronouns: 👏
 - ⚡ Fun fact: 👍
 
